@@ -1,2 +1,2 @@
 # daily ip
-wss://rh92fh353759hsd--lunarrbro.repl.co/
+wss://0845u98shdfh0izjxc--lunarrbro.repl.co/
