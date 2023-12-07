@@ -1,4 +1,5 @@
 # daily ip
+dec 7 wss://ohioh3849124--lunarrbro.repl.co/<br>
 dec 6. OFFLINE due to pc issues<br>
 dec 5. wss://rjeoij9weinas--lunarrbro.repl.co/ <br> 
 dec 5. ip blocked <br>
