@@ -1,5 +1,5 @@
 # daily ip
-dec 13. offline due to  replit errors + hostings app offline
+dec 13. offline due to  replit errors + hostings app offline<br>
 dec 12. offline due to doctor op<br>
 dec 11 no server due to pc issues<br>
 dec 8 forgor to post new ip.<br>
