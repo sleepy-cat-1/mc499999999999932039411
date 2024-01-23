@@ -1,6 +1,5 @@
 # daily ip
-ok download 1.5.2 from https://github.com/gamedump/eaglercraft.git a download will be posted here later
-next week the server will return, soon a copy of mc 1.5.2 with single player will be put here for you to play during down time<br>
+mc 1.5.2 you can now download mc 1.5.2 the server will be up eventually 
 dec 15 wss://nf38dna9s--lunarrbro.repl.co/ sorry for long wait<br>
 dec 14. offline i no joke forogot to turn on my pc<br>
 dec 13. offline due to  replit errors + hostings app offline<br>
