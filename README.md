@@ -1,5 +1,6 @@
 # daily ip
-mc 1.5.2 you can now download mc 1.5.2 the server will be up eventually 
+due to hosting issues the server will be rolled back a bit im not sure how much but the server might work or it might not im not sure.
+mc 1.5.2 you can now download mc 1.5.2 the server will be up eventually <br>
 dec 15 wss://nf38dna9s--lunarrbro.repl.co/ sorry for long wait<br>
 dec 14. offline i no joke forogot to turn on my pc<br>
 dec 13. offline due to  replit errors + hostings app offline<br>
