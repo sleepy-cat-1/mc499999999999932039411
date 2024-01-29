@@ -1,5 +1,5 @@
 # daily ip
-due to hosting issues the server will be rolled back a bit im not sure how much but the server might work or it might not im not sure.
+due to server issues the server is running on a backup from 2023/11/04 sorry.<br>
 mc 1.5.2 you can now download mc 1.5.2 the server will be up eventually <br>
 dec 15 wss://nf38dna9s--lunarrbro.repl.co/ sorry for long wait<br>
 dec 14. offline i no joke forogot to turn on my pc<br>
