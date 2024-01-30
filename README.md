@@ -1,5 +1,5 @@
 # daily ip
-due to server issues the server is running on a backup from 2023/11/04 sorry.<br>
+unknown issues eagilerclients can not connect and the server will be down indefinitely.. there is nothing i can do until i find a fix till then please download the eagilercraft 1.8 as its newer and has single player<br>
 mc 1.5.2 you can now download mc 1.5.2 the server will be up eventually <br>
 dec 15 wss://nf38dna9s--lunarrbro.repl.co/ sorry for long wait<br>
 dec 14. offline i no joke forogot to turn on my pc<br>
